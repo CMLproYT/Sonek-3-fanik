@@ -1,3 +1,4 @@
+NO INSTALAR, INACTIVO
 # Sonek-3-fanik
 ¡¡¡EL ARCHIVO DEL MOD DE SONEK ESTA RECUPERADO!!!
 Bueno este es un mod de s3air (sonic 3 a.i.r)
